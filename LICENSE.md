@@ -1,4 +1,4 @@
-
+Experience marvel rivals mod menu like never before with secure Mod Menu for marvel rivals mod menu - enemy position predictor and auto-healing, the #1 mod menu. Includes enemy
 
 
 
